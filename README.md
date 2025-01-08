@@ -110,3 +110,12 @@ npm run withdraw
 ## Support
 
 For issues and updates, visit our GitHub repository or join our Telegram community.
+- Private Channel: [Premium Script](https://t.me/+GIfY4Pb0Spw5OGZk)
+- Public Channel: [Airdrop3arn](https://t.me/airdrop3arn)
+- Direct Contact: [FlexxRichie](https://t.me/flexxrichie)
+- Twitter: [@FlexxRichie](https://twitter.com/FlexxRichie)
+- GitHub: [@Fl3xxRichie](https://github.com/Fl3xxRichie)
+
+<div align="center">
+  <i>Happy Farming! 🌱</i>
+</div>
